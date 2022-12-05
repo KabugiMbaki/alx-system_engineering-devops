@@ -1,1 +1,1 @@
-Here its all about devops
+Its now time to tighten belt
